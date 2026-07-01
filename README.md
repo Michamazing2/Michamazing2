@@ -1,5 +1,10 @@
-## 
-
+. Hii!
+. Ref as ; Ze , Ivan , Rix , Soren
+. basic DNI . 
+. Always c+h and W2i , 
+. I enjoy talking , no need to be nervy ! 
+. Ze fictokin , Hyper-sharing yumeshipper !
+. ( This is still an heavy wip ToT ... So much to figure out ) 
 <!--
 **Michamazing2/Michamazing2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
