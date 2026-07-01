@@ -5,6 +5,10 @@
 . I enjoy talking , no need to be nervy ! 
 . Ze fictokin , Hyper-sharing yumeshipper !
 . ( This is still an heavy wip ToT ... So much to figure out ) 
+
+
+<img alt="Static Badge" src="https://img.shields.io/badge/puffers%20-%20103?style=plastic&logo=O&logoColor=488EAE&logoSize=90&label=67&labelColor=AC7846&color=488EAE">
+
 <!--
 **Michamazing2/Michamazing2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
