@@ -1,6 +1,8 @@
 . Hii!
-. Ref as ; Ze , Ivan , Rix , Soren
-. basic DNI . 
+. 
+Ref as ; Ze , Ivan , Rix , Soren
+. 
+basic DNI . 
 . Always c+h and W2i , 
 . I enjoy talking , no need to be nervy ! 
 . Ze fictokin , Hyper-sharing yumeshipper !
