@@ -1,10 +1,15 @@
 . Hii!
-. 
+
+
 Ref as ; Ze , Ivan , Rix , Soren
-. 
+
+
 basic DNI . 
-. Always c+h and W2i , 
-. I enjoy talking , no need to be nervy ! 
+
+ Always c+h and W2i , 
+
+
+ I enjoy talking , no need to be nervy ! 
 . Ze fictokin , Hyper-sharing yumeshipper !
 . ( This is still an heavy wip ToT ... So much to figure out ) 
 <img width="736" height="414" alt="Zgect Yaoi" src="https://github.com/user-attachments/assets/fab147f2-edc7-466e-afe4-797683318cff" />
